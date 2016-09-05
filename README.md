@@ -128,7 +128,7 @@ http://cl.oaiyr.com/htm_data/16/1608/2047337.html
 
 #### 南山寺+天涯海角
 只！为！信！仰！
-![](http://m.tuniucdn.com/fb2/t1/G1/M00/20/BE/Cii9EFdoxw-IS9lEAAEKEPmzE4IAAGppgPBT_gAAQoo899_w640_h320_c1_t0.jpg)
+![](https://pic4.zhimg.com/058b672331ad576fa910e0f0c82e7433_b.jpg)
 
 
 
